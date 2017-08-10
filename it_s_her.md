@@ -1,42 +1,74 @@
-# It's Her
+# Before Dawn
 
 I watched over the night
-As she came with light steps on ground
-She gently blew out the light
-Her face serene, her voice a peaceful sound
-Black Cashmere wrapped around her arms
-She is a secretive, dark being
-In her arsenal, she has endless charms
-And the twinkle of stars for company
+As she came with light steps
+Softly streaking on the ground
+Someone blew out the candles
+As my gaze fell on her face
+The most serene vista
+And her voice a peaceful sound
+Black Cashmere
+Wrapped around her arms
+She is secretive
+Dark being
+In her arsenal,
+She has endless charms
+And the twinkle of stars
+Just for company
 Gently, she tugs at my arm
-Taking me where I’ve wanted to be
-She sets me free from the worldly bonds
-Like a single drop going away from the sea
+Beckoning me to follow her
+To the land of my dreams
+She unshackles me
+From my worldly bonds
+And I fall
+Like a single drop
+Going upwards and away
+From the sea
 I am scared
 I am satisfied
 Her deep darkness is soothing
-The neon lights they harbor, too bright
+The neon lights
+Too bright
 She is a paradox
 Confluence of opposite polarities
 Daughter of emptiness and dread
 Mother of festivity and lights
-While in some she encites promiscuity
-Others find in her a muse
-Then there is the lone, lost traveler who fears her
-And the tired laborer who welcomes a tiny death everyday
-Fair in her judgement, she commands the miscreants
-Also the crusaders, the workers and the jokers
-Her words are almost a magical spell
-To some a sweet relief, to some a harsh order
-Her walk is a smooth, slow drawl
-As she wanders on, alone
-No one’s at home waiting for her to get back
-And she has lovers whom she has never known
+In some she encites
+promiscuity
+Others find in her
+A muse, a lover, a teacher
+For the lone, lost traveler
+Fear
+And the tired laborer who welcomes
+A tiny death, everyday
+She is a fair master,
+Commanding the miscreants
+The crusaders, the workers
+The jokers
+Its almost a magical spell
+To some a sweet relief,
+To some a harsh order
+Her walk is...
+Smooth, slow, bored
+Like a drawl
+She wanders on,
+Alone
+No one waits at home
+For her to get back
+She does have lovers
+But never known
 A detached observer
 A hypnotist and a savior
-A merciless seductress and a cruel master
+A merciless seductress
+A cruel master
 She's the reason for my Stockholm
-Still, I love the sweet sadness on her face
-I beg her to stay every time
-A laugh like windchimes, a movement of grace
-The first light of dawn hits me as she walks away…
+Still, I love the sweet, deep
+Sadness of her face
+I beg her to stay
+Every time
+A laugh like windchimes,
+A movement of grace
+The first light of dawn hits
+And I find I am watching
+Her
+Walking away, aching, empty…
