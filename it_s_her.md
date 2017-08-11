@@ -8,18 +8,20 @@ Someone blew out the candles
 And my gaze fell on her face
 Serene as a calm sky
 Her eyes...shy
+
 Black Cashmere
 Wrapped around her arms
 A secretive dark being
 She has endless charms
 And the twinkle of stars
 Just for company
-Gently, she tugs at me
 Beckoning to follow her
+Gently, she tugs at me
 Into the land of my dreams
 She unshackles me
 From my worldly bonds
-And I fall like a single drop
+And I fall
+Like a single drop
 Going upwards
 .
 .
@@ -32,15 +34,23 @@ From the sea.
 I am scared
 I am satisfied
 
-Her deep darkness
-Soothing
-The neon lights
-Too bright
 She is a paradox
 Confluence of opposite polarities
-Daughter of emptiness and dread
+Daughter of emptiness
 Mother of festivity and lights
-In some she encites
+She splits me in two
+The bat and the firefly
+It is only in darkness
+That light shines
+At its brightest
+Inspiring the hero
+And the villain
+Her deep darkness
+Soothing
+The dancing neon
+Bright!
+
+In some she incites
 Promiscuity
 Others find in her
 A muse
@@ -49,6 +59,7 @@ And for the lone, lost traveler
 Fear
 And for the tired laborer?
 A tiny death, everyday
+
 She is a fair master,
 Commanding the miscreants
 The crusaders
@@ -57,6 +68,7 @@ The jokers
 Hers is almost a magical spell
 To some a sweet relief,
 To some a harsh order
+
 Her walk is...
 Smooth
 Slow
@@ -66,7 +78,8 @@ She wanders on,
 Alone
 No one waits at home
 For her to get back
-And lovers, she has never known
+And lovers she has never known
+
 A detached observer
 A hypnotist
 A savior
@@ -78,7 +91,8 @@ The sweet, deep
 Sadness of her face
 I beg her to stay
 Every. Time.
-A laugh like movement of earth,
+A laugh.
+The sort of which moves the earth.
 Her hair whips with the wind
 The first light of dawn hits
 And I am looking upon
