@@ -10,8 +10,7 @@ Serene as a calm sky
 Her eyes...shy
 Black Cashmere
 Wrapped around her arms
-She is a secretive dark being
-In her arsenal,
+A secretive dark being
 She has endless charms
 And the twinkle of stars
 Just for company
@@ -20,13 +19,21 @@ Beckoning to follow her
 Into the land of my dreams
 She unshackles me
 From my worldly bonds
-And I fall
-Like a single drop
-Going upwards and away
-From the sea
+And I fall like a single drop
+Going upwards
+.
+.
+.
+Away
+.
+.
+From the sea.
+
 I am scared
 I am satisfied
-Her deep darkness is soothing
+
+Her deep darkness
+Soothing
 The neon lights
 Too bright
 She is a paradox
@@ -38,10 +45,9 @@ Promiscuity
 Others find in her
 A muse
 A lover
-A teacher
 And for the lone, lost traveler
 Fear
-And for the tired laborer
+And for the tired laborer?
 A tiny death, everyday
 She is a fair master,
 Commanding the miscreants
@@ -52,7 +58,9 @@ Hers is almost a magical spell
 To some a sweet relief,
 To some a harsh order
 Her walk is...
-Smooth, slow, bored
+Smooth
+Slow
+...Bored
 Like a drawl
 She wanders on,
 Alone
@@ -60,18 +68,19 @@ No one waits at home
 For her to get back
 And lovers, she has never known
 A detached observer
-A hypnotist and a savior
+A hypnotist
+A savior
 A merciless seductress
 A cruel master
 She's the reason for my Stockholm
-Still, I love the
-Sweet, deep
+Still...I love
+The sweet, deep
 Sadness of her face
 I beg her to stay
-every time
-A laugh like windchimes,
-A movement of grace
+Every. Time.
+A laugh like movement of earth,
+Her hair whips with the wind
 The first light of dawn hits
-I am looking upon
+And I am looking upon
 Her
 Walking away…
