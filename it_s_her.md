@@ -1,23 +1,23 @@
 # Before Dawn
 
-I watched over the night
-As she came with light steps
-Softly streaking on the ground
+I was looking upon the twilight
+When she came with light steps
+Across the ground
+Without a sound
 Someone blew out the candles
-As my gaze fell on her face
-The most serene vista
-And her voice a peaceful sound
+And my gaze fell on her face
+Serene as a calm sky
+Her eyes...shy
 Black Cashmere
 Wrapped around her arms
-She is secretive
-Dark being
+She is a secretive dark being
 In her arsenal,
 She has endless charms
 And the twinkle of stars
 Just for company
-Gently, she tugs at my arm
-Beckoning me to follow her
-To the land of my dreams
+Gently, she tugs at me
+Beckoning to follow her
+Into the land of my dreams
 She unshackles me
 From my worldly bonds
 And I fall
@@ -34,18 +34,21 @@ Confluence of opposite polarities
 Daughter of emptiness and dread
 Mother of festivity and lights
 In some she encites
-promiscuity
+Promiscuity
 Others find in her
-A muse, a lover, a teacher
-For the lone, lost traveler
+A muse
+A lover
+A teacher
+And for the lone, lost traveler
 Fear
-And the tired laborer who welcomes
+And for the tired laborer
 A tiny death, everyday
 She is a fair master,
 Commanding the miscreants
-The crusaders, the workers
+The crusaders
+The workers
 The jokers
-Its almost a magical spell
+Hers is almost a magical spell
 To some a sweet relief,
 To some a harsh order
 Her walk is...
@@ -55,20 +58,20 @@ She wanders on,
 Alone
 No one waits at home
 For her to get back
-She does have lovers
-But never known
+And lovers, she has never known
 A detached observer
 A hypnotist and a savior
 A merciless seductress
 A cruel master
 She's the reason for my Stockholm
-Still, I love the sweet, deep
+Still, I love the
+Sweet, deep
 Sadness of her face
 I beg her to stay
-Every time
+every time
 A laugh like windchimes,
 A movement of grace
 The first light of dawn hits
-And I find I am watching
+I am looking upon
 Her
-Walking away, aching, empty…
+Walking away…
